@@ -1,6 +1,6 @@
 ### Hi there 👋, my name is **HYEJI**
 #### Welcome to my GitHub 🎄      
-<img src='깃헙프로필2.jpg'>         
+<img src='KakaoTalk_20221229_103954083.jpg'>         
 
 🎂 **1999/05/14**        
 ✏ **Mathematics / Medical Information**     
